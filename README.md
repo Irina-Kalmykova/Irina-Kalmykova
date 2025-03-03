@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Irina-Kalmykova
-- 👀 I’m interested in books
+- 👀 I’m interested in different books
 - 🌱 I’m currently learning QA
 - 💞️ I’m looking to collaborate on new projects
 - 📫 How to reach me on Telegram @xtradnmc 
